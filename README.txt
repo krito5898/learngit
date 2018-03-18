@@ -1,1 +1,2 @@
 laji chuchu
+laji bios
